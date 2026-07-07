@@ -1,4 +1,4 @@
-# 
+# Varo Bank Desktop combines mobile banking with high-yield savings accounts, no fees, and early direct deposit.
 
 
 
